@@ -24,7 +24,7 @@ I'm open to collaborating on projects that involve:
 
 Feel free to connect with me through:
 - **gmail**: anjali.shandilya333@gmail.com.
-- **LinkedIn**: [www.linkedin.com/in/anjalishandilya333](https://www.linkedin.com/in/anjali-shandilya)
+- **LinkedIn**: [www.linkedin.com/in/anjalishandilya333](https://www.linkedin.com/in/anjali-shandilya333)
 
 ## 😄 Pronouns
 She/Her
